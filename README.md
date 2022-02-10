@@ -1,4 +1,4 @@
-Dominique Dienst
+Dominique Dienst<br>
 <a href="mailto:d.dienst.spielspassmusik@gmail.com">d.dienst.spielspassmusik@gmail.com</a>
 
 Spiel Spass & Musik<br>
