@@ -11,7 +11,7 @@ Einfach eine Mail Schreiben
 Nur Für Altenheime 
 
 # Ich biete Beschäftigung und Freizeitgestaltung
-• Basteln
+• Basteln<br>
 • Musik und Spass 
 • Tanz und Bewegung 
 • Malen
