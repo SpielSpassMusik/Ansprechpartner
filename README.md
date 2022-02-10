@@ -9,3 +9,10 @@ Mittwoch und Donnerstag<br>
 Einfach eine Mail Schreiben
 
 Nur Für Altenheime 
+
+# Ich biete Beschäftigung und Freizeitgestaltung
+• Basteln
+• Musik und Spass 
+• Tanz und Bewegung 
+• Malen
+• Gesellschaft Spiele
