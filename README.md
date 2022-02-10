@@ -1,3 +1,3 @@
 # Unsere Ansprechpartner #
-<a href=">Dominique Dienst</a>
-d.dienst.spielspassmusik@gmail.com
+Dominique Dienst
+mailto:d.dienst.spielspassmusik@gmail.com
