@@ -13,6 +13,6 @@ Nur Für Altenheime
 # Ich biete Beschäftigung und Freizeitgestaltung
 • Basteln<br>
 • Musik und Spass<br>
-• Tanz und Bewegung 
-• Malen
-• Gesellschaft Spiele
+• Tanz und Bewegung<br>
+• Malen<br>
+• Gesellschaft Spiele<br>
