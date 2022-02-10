@@ -6,7 +6,7 @@ Spiel Spass & Musik<br>
 34289 Zierenberg
 
 Termine nach Vereinbarung<br> 
-Mittwoch und Donnerstag 
+Mittwoch und Donnerstag<br>
 Einfach eine Mail Schreiben
 
 Nur Für Altenheime 
